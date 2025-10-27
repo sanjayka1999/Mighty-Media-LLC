@@ -79,7 +79,7 @@ Stay connected and follow the journey:
 ## 💬 Contact
 
 **Sanjay Kathula**  
-📧 Email: [your-email@example.com](mailto:your-email@example.com)  
+📧 Email: [sanjaykathula7@gmail.com)  
 📍 Based in Nashua, NH, USA  
 🚀 Available for collaborations, events, and creative projects
 
